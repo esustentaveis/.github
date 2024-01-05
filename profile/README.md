@@ -15,7 +15,7 @@ Para entrar em contato, envie um e-mail para [contato@empreendedoresustentaveis.
 - 💼 [LinkedIn](https://www.linkedin.com/company/esustentaveis)
 - 📘 [Facebook](https://www.facebook.com/esustentaveis)
 - 📸 [Instagram](https://www.instagram.com/esustentaveis)
-- 🐤 [Twitter/](https://twitter.com/esustentaveis)
+- 🐤 [Twitter](https://twitter.com/esustentaveis)
 - 🎥 [YouTube](https://www.youtube.com/esustentaveis)
 
 Fique à vontade para explorar nossos repositórios e participar das nossas iniciativas! Se tiver alguma dúvida ou sugestão, entre em contato conosco pelo [e-mail](mailto:contato@empreendedoresustentaveis.com.br). Obrigado por se juntar a nós na jornada dos Empreendedores Sustentáveis!
